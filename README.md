@@ -30,6 +30,10 @@
 >
 > 公共场所经营者应当开展吸烟危害健康的宣传，并配备专（兼）职人员对吸烟者进行劝阻。
 
+## 协会观点
+
+- [形势严峻，百害一利](https://github.com/CNAntiTobaccoAssn/Chinese-Anti-tobacco-Association/blob/main/%E5%BD%A2%E5%8A%BF%E4%B8%A5%E5%B3%BB%EF%BC%8C%E7%99%BE%E5%AE%B3%E4%B8%80%E5%88%A9/%E5%BD%A2%E5%8A%BF%E4%B8%A5%E5%B3%BB%EF%BC%8C%E7%99%BE%E5%AE%B3%E4%B8%80%E5%88%A9.md)
+
 ## 初步行动方案
 
 ### 改变共识和称谓
