@@ -33,6 +33,7 @@
 ## 协会观点
 
 - [形势严峻，百害一利](https://github.com/CNAntiTobaccoAssn/Chinese-Anti-tobacco-Association/blob/main/%E5%BD%A2%E5%8A%BF%E4%B8%A5%E5%B3%BB%EF%BC%8C%E7%99%BE%E5%AE%B3%E4%B8%80%E5%88%A9/%E5%BD%A2%E5%8A%BF%E4%B8%A5%E5%B3%BB%EF%BC%8C%E7%99%BE%E5%AE%B3%E4%B8%80%E5%88%A9.md)
+- [烟草平装，难以推进](https://github.com/CNAntiTobaccoAssn/Chinese-Anti-tobacco-Association/blob/main/%E7%83%9F%E8%8D%89%E5%B9%B3%E8%A3%85%EF%BC%8C%E9%9A%BE%E4%BB%A5%E6%8E%A8%E8%BF%9B/%E7%83%9F%E8%8D%89%E5%B9%B3%E8%A3%85%EF%BC%8C%E9%9A%BE%E4%BB%A5%E6%8E%A8%E8%BF%9B.md)
 
 ## 初步行动方案
 
